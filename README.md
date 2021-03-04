@@ -15,3 +15,4 @@
 
 ![image](https://user-images.githubusercontent.com/40600240/109807636-1e7b4880-7c61-11eb-8b21-fb772e55a1dc.png)
 
+发送 “小米有品” 获取软件的最新消息！
